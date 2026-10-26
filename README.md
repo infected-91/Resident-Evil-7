@@ -226,4 +226,4 @@ Resident Evil 7: Biohazard is available as a full free version with all features
 Download Resident Evil 7: Biohazard now and immerse yourself in one of the most thrilling horror experiences available!
 
 ---
-**Last updated:** 2026-10-25 22:52:09 UTC
+**Last updated:** 2026-10-26 00:47:40 UTC
